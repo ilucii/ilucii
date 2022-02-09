@@ -2,14 +2,14 @@ hello, im ilucii or luci
 
 
 
-i like extra-cheesy pepperoni pizza
+i like extra-cheesy pepperoni pizza 🍕
 
 
 
 
 currently learning 
 
-Lua, HTML and CSS/C++
+Lua, HTML and CSS/C++ 💾
 
 
 
@@ -21,5 +21,7 @@ Diablo and Azura-X
 
 you can reach me at:
 
-cerberus#0002 | Discord
-mattiealtacc15@gmail.com | Gmail
+cerberus#0002 | Discord 💮
+mattiealtacc15@gmail.com | Gmail 💌
+
+(edited on a daily, so all info is updated) 
