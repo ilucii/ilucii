@@ -21,7 +21,7 @@ Diablo and Azura-X
 
 you can reach me at:
 
-cerberus#0002 | Discord 💮
+lucii#4444 | Discord 💮
 mattiealtacc15@gmail.com | Gmail 💌
 
 (edited on a daily, so all info is updated) 
