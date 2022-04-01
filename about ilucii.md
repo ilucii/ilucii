@@ -1,4 +1,4 @@
-hello, im ilucii or luci
+hello, im ilucii or 2w2r/2witr
 
 
 
@@ -21,7 +21,7 @@ Diablo and Azura-X
 
 you can reach me at:
 
-lucii#4444 | Discord 💮
+2w2#8888 | Discord 💮
 mattiealtacc15@gmail.com | Gmail 💌
 
 (edited on a daily, so all info is updated) 
